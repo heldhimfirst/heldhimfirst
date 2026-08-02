@@ -26,8 +26,7 @@ pronouns.cc is outdated but go check it out anyway yay
 
 ---
 
-<p> <a href="https://veiledprayer.atabook.org/"</p>
-leave message. hello
+<p> <a href="https://veiledprayer.atabook.org/">leave message. hello</a></p>
   
 <br>
 reference omg wow so funny <br>
