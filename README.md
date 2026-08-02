@@ -2,8 +2,6 @@
 <img src="https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=♡&color=750000&base=1234&style=for-the-badge">
 </div>
 
-pronouns.cc is outdated but go check it out anyway yay
-
 ---
 
 <p align="left"> <img src="https://github.com/user-attachments/assets/9a441253-3ce4-458f-92d6-e0d624587435" width="50" height="50" align="left"> <kbd><br>Its white girl Wednesday<br>⠀  </kbd> </p> 
