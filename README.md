@@ -26,8 +26,8 @@ also check out my awesome freakin pronouns.cc
 
 ---
 
-<p> <a href="https://gentlevows.atabook.org/"> atabook ok</p>
-leave message. probably wont reply doe. iforgot email. b ye.
+<p> <a href="https://veiledprayer.atabook.org/"</p>
+leave message. hello
   
 <br>
 reference omg wow so funny <br>
