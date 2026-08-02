@@ -6,7 +6,7 @@ pronouns.cc is outdated but go check it out anyway yay
 
 ---
 
-<p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>Its white girl Wednesday<br>⠀  </kbd> </p> 
+<p align="left"> <img src="https://github.com/user-attachments/assets/9a441253-3ce4-458f-92d6-e0d624587435" width="50" height="50" align="left"> <kbd><br>Its white girl Wednesday<br>⠀  </kbd> </p> 
 
 <p align="left"> <img src="https://github.com/user-attachments/assets/66e5e3fc-2be4-4fa2-ae94-eb0859a22128" width="50" height="50" align="left"> <kbd><br>Whats good ma<br>⠀  </kbd> </p>
 
@@ -16,13 +16,13 @@ pronouns.cc is outdated but go check it out anyway yay
 
 <p align="right"> <img src="https://github.com/user-attachments/assets/66e5e3fc-2be4-4fa2-ae94-eb0859a22128" width="50" height="50" align="right"> <kbd align="right"><br>idiot<br>⠀  </kbd></p>
 
-<p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>Everyday is white girl wednesday<br>when i think of you 😘 <br>⠀  </kbd> </p> 
+<p align="left"> <img src="https://github.com/user-attachments/assets/9a441253-3ce4-458f-92d6-e0d624587435" width="50" height="50" align="left"> <kbd><br>Everyday is white girl wednesday<br>when i think of you 😘 <br>⠀  </kbd> </p> 
 
-<p align="left"> <img src="https://github.com/user-attachments/assets/66e5e3fc-2be4-4fa2-ae94-eb0859a22128" width="50" height="50" align="left"> <kbd><br>my porcelain princess<br>⠀  </kbd> </p>
+<p align="left"> <img src="https://github.com/user-attachments/assets/9a441253-3ce4-458f-92d6-e0d624587435" width="50" height="50" align="left"> <kbd><br>my porcelain princess<br>⠀  </kbd> </p>
 
 <p align="right"> <img src="https://github.com/user-attachments/assets/6f9d17d7-f552-4fd7-8771-84d77f32a94b" width="50" height="50" align="right"> <kbd align="right"><br>never message me again<br>⠀  </kbd></p>
 
-<p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>my milk of magnesia<br>⠀  </kbd> </p> 
+<p align="left"> <img src="https://github.com/user-attachments/assets/9a441253-3ce4-458f-92d6-e0d624587435" width="50" height="50" align="left"> <kbd><br>my milk of magnesia<br>⠀  </kbd> </p> 
 
 ---
 
