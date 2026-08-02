@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=♡&color=00c1b4&base=1234&style=for-the-badge">
 </div>
 
-also check out my awesome freakin pronouns.cc
+pronouns.cc is outdated but go check it out anyway yay
 
 ---
 
