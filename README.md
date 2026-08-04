@@ -2,6 +2,8 @@
 <img src="https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=♡&color=750000&base=1234&style=for-the-badge">
 </div>
 
+<p> <a href="https://veiledprayer.atabook.org/">leave message. hello</a></p>
+
 ---
 
 <p align="left"> <img src="https://github.com/user-attachments/assets/9a441253-3ce4-458f-92d6-e0d624587435" width="50" height="50" align="left"> <kbd><br>Its white girl Wednesday<br>⠀  </kbd> </p> 
@@ -23,8 +25,6 @@
 <p align="left"> <img src="https://github.com/user-attachments/assets/9a441253-3ce4-458f-92d6-e0d624587435" width="50" height="50" align="left"> <kbd><br>my milk of magnesia<br>⠀  </kbd> </p> 
 
 ---
-
-<p> <a href="https://veiledprayer.atabook.org/">leave message. hello</a></p>
   
 <br>
 reference omg wow so funny <br>
