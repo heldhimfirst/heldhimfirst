@@ -2,6 +2,9 @@
 <img src="https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=♡&color=750000&base=1234&style=for-the-badge">
 </div>
 
+<!-- Hello if you're readin' this pls star my repository thankz have a nice day-->
+<!-- Yes you may fork my repository. -->
+
 <p> <a href="https://veiledprayer.atabook.org/">leave message. hello</a></p>
 
 ---
