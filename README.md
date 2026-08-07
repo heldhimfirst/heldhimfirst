@@ -35,3 +35,4 @@
 reference omg wow so funny <br>
 <img src="https://i.pinimg.com/736x/5e/a3/fe/5ea3fe661a7b07a47a87747302f3e750.jpg" width="270" height="270"> 
 
+<a href="https://rentry.co/wsthelm"> check out my rentry ok bai </a>
